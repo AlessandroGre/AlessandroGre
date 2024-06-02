@@ -6,4 +6,4 @@
 - ❓ I’m looking for help with financial analysis, portfolio optimisation, and algorithmic trading
 - 🎾 I have been playing tennis since I was 5
 - 📧 How to reach me: alessandrogreco9961@gmail.com
-- 🌏 Fun fact: In the last two years, I studied in Rome (Italy), Nice (France), and Tokyo (Japan)
+- 🌏 Fun fact: In the last two years I studied in Rome (Italy), Nice (France), and Tokyo (Japan)
